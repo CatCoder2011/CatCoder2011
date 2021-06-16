@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CatCoder2011
 - 👀 I’m interested in dance, music, code, and swinging!
 - 🌱 I’m currently learning how to code.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to join new groups (Like people who just started to code)
 - 📫 How to reach me: email me at: friday13abigail@gmail.com!
 
 <!---
